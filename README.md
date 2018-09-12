@@ -1,1 +1,1 @@
-hi, this exercise is a bitch!!! Bonjour je m'aplf,ekio 
+hi, hi, this exercise is a bitch!!! Bonjour je m'aplf,ekio 
